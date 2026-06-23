@@ -15,7 +15,7 @@ MINI UBRL
 更新日期： 2026 年 3 月
 
 條款說明：
-欲分享此地圖請標著作者: umbrella1788。
+禁制外傳
 
 非商業性 (Non-Commercial)： 禁止將本作品及其衍生創作（如修改版）用於商業盈利行為。
 
@@ -27,3 +27,5 @@ MINI UBRL
 Discord: umbrella1788
 
 Email: danty.chuoyouting@gmail.com
+
+QQ:3857598358
